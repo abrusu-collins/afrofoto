@@ -6,5 +6,5 @@ SHARE THE RICH CULTURE OF AFRICA
 2. The food
 3. The environment
 4. The animals
-5. Day ti day activities
+5. Day to day activities
 
